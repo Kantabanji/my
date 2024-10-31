@@ -18,6 +18,7 @@ Nestled in the heart of Odisha, **Kantabanji** is a vibrant town known for its w
 - **Nearby Waterfalls**: Perfect for day trips and nature lovers.
 - **Local Markets**: Dive into the vibrant culture and shop for unique crafts.
 - **Historical Sites**: Discover the town's rich heritage and architecture.
+> *Contact us to publish your business*
 
 ## Local Culture
 
