@@ -23,7 +23,7 @@ Nestled in the heart of Odisha, **Kantabanji** is a vibrant town known for its w
 
 Kantabanji is home to diverse traditions, festivals, and local flavors. Don’t miss the lively celebrations during festivals, where you can immerse yourself in Odisha’s unique customs and cuisine.
 
-## How to Get Here
+# How to Get Here
 
 Kantabanji is well-connected by rail and road, making it easy to reach from major cities in Odisha and surrounding states. The Kantabanji Railway Station is a central hub, bringing in visitors year-round.
 
