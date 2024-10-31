@@ -1,7 +1,6 @@
 # Welcome to Vibrant Kantabanji
 
-Nestled in the heart of Odisha, **Kantabanji** is a vibrant town known for its warm hospitality, bustling marketplaces, and beautiful natural landscapes.  
-Kantabanji is located in the western part of Odisha in district bolangir.   
+Nestled in the western of Odisha, **Kantabanji** is a vibrant town known for its warm hospitality, bustling marketplaces situated in district Bolangir.
 Whether you're here to experience local traditions or explore nearby sights, Kantabanji offers a refreshing escape and a taste of authentic Odisha.
 
 <iframe
